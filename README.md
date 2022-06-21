@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JRich9797
-- 👀 I’m interested in... Guns & girls 
+- 👀 I’m interested in... Having successful Career 
 - 🌱 I’m currently learning ... criminal justice
-- 💞️ I’m looking to collaborate on ...trap music
+- 💞️ I’m looking to collaborate on ... Stocks N cloud 
 - 📫 How to reach me ... jsrichardson8@liberty.edu
 
 <!---
